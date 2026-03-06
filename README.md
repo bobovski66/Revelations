@@ -289,7 +289,7 @@
 
 **11** A fifth of the world's oil trade ceased, and the price of fuel climbed, and the economies of nations trembled.
 
-**12** The great meeting-places of travelers—the airports of the cities by the gulf—fell silent, 
+**12** The great meeting-places of travelers fell silent, 
 
 **13** And thousands were stranded far from home, unable to continue their journeys.
 
