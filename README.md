@@ -1,7 +1,7 @@
-# The Revelation of Our Times
+# The Disclosure of Our Times
 ## A Vision of the Years of Discord
 
-*In the manner of prophetic witness*
+
 
 ---
 
