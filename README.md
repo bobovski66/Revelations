@@ -27,9 +27,13 @@
 
 **1** And when the twentieth year came, I saw a pale horse, and the name of him who sat upon it was Pestilence, and Hell followed with him.
 
-**2** From the East came a plague, invisible as the wind yet deadly as the serpent's tooth. **3** It spread across all nations, from province to province, and city to city, until the whole earth was afflicted.
+**2** From the East came a plague, invisible as the wind yet deadly as the serpent's tooth. 
 
-**4** And I heard a voice cry out: "How long, O Lord, how long must this suffering endure?" **5** But the plague continued for seasons upon seasons, and the dead were numbered in millions, though the beast from the tower said, "It is nothing; it shall pass like a shadow."
+**3** It spread across all nations, from province to province, and city to city, until the whole earth was afflicted.
+
+**4** And I heard a voice cry out: "How long, O Lord, how long must this suffering endure?" 
+
+**5** But the plague continued for seasons upon seasons, and the dead were numbered in millions, though the beast from the tower said, "It is nothing; it shall pass like a shadow."
 
 **6** The houses of healing overflowed with the sick and dying. 
 
@@ -61,7 +65,9 @@
 
 **7** Many among the people said, "This was righteous anger," and they would not acknowledge the transgression.
 
-**8** And I wept, for I saw that truth itself had become a casualty of war, **9** And each tribe believed its own prophets and rejected the testimony of their adversaries.
+**8** And I wept, for I saw that truth itself had become a casualty of war, 
+
+**9** And each tribe believed its own prophets and rejected the testimony of their adversaries.
 
 ---
 
@@ -69,7 +75,9 @@
 
 **1** Then I saw four horsemen riding across the earth, and they brought with them fire and flood, drought and tempest.
 
-**2** The first rode through forests and set them ablaze, **3** And the smoke ascended to heaven and darkened the sun, and the creatures of the wild fled before the flames, though many perished.
+**2** The first rode through forests and set them ablaze, 
+
+**3** And the smoke ascended to heaven and darkened the sun, and the creatures of the wild fled before the flames, though many perished.
 
 **4** The second rode upon the oceans and stirred up great storms, 
 
@@ -107,7 +115,9 @@
 
 **7** Meanwhile, the beast from the tower of gold spoke honeyed words about the dragon, 
 
-**8** Saying, "He is strong; he is wise; we can make accommodation," **9** And many were troubled by this, for the dragon was known to be cruel and treacherous.
+**8** Saying, "He is strong; he is wise; we can make accommodation," 
+
+**9** And many were troubled by this, for the dragon was known to be cruel and treacherous.
 
 ---
 
@@ -161,7 +171,9 @@
 
 **8** Yet you turn away and say, 'It is not my concern.'"
 
-**9** "Therefore, the cup of wrath is nearly full, **10** And the final judgment draws near."
+**9** "Therefore, the cup of wrath is nearly full, 
+
+**10** And the final judgment draws near."
 
 ---
 
@@ -193,7 +205,8 @@
 
 ## Chapter 9: The Striking of the Serpent's Head
 
-**1** On the eighth day of the second month, in the twenty-sixth year, as the negotiations continued, 
+**1** On the eighth day of the second month, in the twenty-sixth year, as the negotiations continued,
+
 **2** The beast gave the command, and the nation of the star joined him in covenant.
 
 **3** And at dawn, the sky above Persia filled with the instruments of death: missiles and bombs rained down upon cities and strongholds.
@@ -258,7 +271,9 @@
 
 **2** The faction of the cedar-tree joined the battle, and their rockets fell upon the lands of the star-nation. 
 
-**3** In response, the star-nation unleashed its fury upon the southern territories, **4** And again the innocent suffered as buildings collapsed and families were torn asunder.
+**3** In response, the star-nation unleashed its fury upon the southern territories, 
+
+**4** And again the innocent suffered as buildings collapsed and families were torn asunder.
 
 **5** The flying machines of the beast were struck down by the defenses of a supposed ally, 
 
@@ -302,7 +317,9 @@
 
 **7** The beast had not made his case to the people before launching his weapons, 
 
-**8** And when questioned, his spokespeople gave shifting reasons: **9** First they said it was to prevent weapons of fire, then they said it was to punish evil acts, then they said it was because they "had a feeling."
+**8** And when questioned, his spokespeople gave shifting reasons: 
+
+**9** First they said it was to prevent weapons of fire, then they said it was to punish evil acts, then they said it was because they "had a feeling."
 
 **10** And the people lost trust, for they had heard such words before, in the days before the invasion of the land between two rivers, 
 
@@ -324,7 +341,9 @@
 
 **6** And the people of the beast's kingdom rose up and said, "Enough," but by then the damage was done.
 
-**7** And I saw other powers—the dragon from the East and the bear from the North—extend their influence into the void left by chaos, **8** And the beast's kingdom grew weaker, not stronger, from this adventure.
+**7** And I saw other powers—the dragon from the East and the bear from the North—extend their influence into the void left by chaos, 
+
+**8** And the beast's kingdom grew weaker, not stronger, from this adventure.
 
 **9** Upon the second path, I saw the beast achieve his regime change through overwhelming violence, 
 
