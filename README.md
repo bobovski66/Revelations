@@ -241,7 +241,7 @@
 
 **3** Then I was shown a vision of a school in a Persian city, where young girls gathered to learn. 
 
-**4** And the fire from heaven fell upon them, and they were consumed in an instant—more than a hundred innocent souls.
+**4** And the fire from heaven fell upon them, and they were consumed in an instant.
 
 **5** And I heard their mothers wailing, a sound that pierced the heavens, 
 
